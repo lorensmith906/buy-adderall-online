@@ -2,6 +2,12 @@
 <h2>Adderall ( Amphetamine / Dextroamphetamine )</h2>
 Adderall is known to be a schedule 2 substance not available in the market normally that person can buy only with a prescription from a trusted doctor. A person with the extreme condition of Attention Deficiency Hyperactivity Disorder would require this medication if he/she cannot really focus properly on his or her tasks. You shall consult a doctor and on the basis of the meeting with your doctor, you may be given instructions on how to take the medicine properly and safely. If you ever have taken the medicine in the past, then you might not be very sensitive to the harmful effects of the medicine. 
 
+<h1>Click Here>>></h1><h2><a href="https://bit.ly/2XNUhBz">Buy Adderall Online</a></h2>
+
+<h1>Buy Tramadol Online Here>>></h1><h2><a href="https://bit.ly/2XNUhBz">Buy Adderall Online</a></h2>
+
+<h1>Order All Pain Meds Online>>></h1><h2><a href="https://bit.ly/2XNUhBz">Buy Adderall Online</a></h2>
+
 <h3>Dosage of the medicine</h3> 
 A person may take the medicine in every 4 to 6 hours as per the need of a person. You may also keep in mind the recommendations of your doctor. The medicine can be effective only if you follow the safety instructions that your doctor would give you. The medicine can also be taken 2 to 3 times a day if a person wants to cover his/her whole day for ADHD treatment. 
 Different people may need the medication in different ways, so it is better to talk to your doctor about your requirements for the medicine.
@@ -60,6 +66,3 @@ There are reports that people get the medicine very easily and as a result, star
 
 There are reports that students of colleges and schools also start taking the medicine just for the mere need for more concentration in their studies. This is totally an abuse of this medicine that everyone should avoid. A person should always get the medicine by consulting a doctor. 
 
-<a href="https://www.bestpharmacyinusa.com/product-category/buy-adderall-online">Buy Adderall Online</a>
-<a href="https://www.bestpharmacyinusa.com/product-category/buy-adderall-online">Order Adderall</a>
-<a href="https://www.bestpharmacyinusa.com/product-category/buy-adderall-online">How to buy Adderall online</a>
